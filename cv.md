@@ -14,6 +14,14 @@ Personal information:
 
 >Date of Birth
  03 03 2003
- 
+
  >Phone
  +375445320444
+
+  >Mail
+ [rudenkov.egor03@mail.ru](url)
+ 
+ >Nickname on the discord server
+ YAHOR-RUDZIANKOU
+ 
+ ___

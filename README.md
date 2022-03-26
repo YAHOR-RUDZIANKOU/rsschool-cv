@@ -1,1 +1,1 @@
-[link](https://YAHOR-RUDZIANKOU.github.io/rsschool-cv/cv)
+[link](https://YAHOR-RUDZIANKOU.github.io/rsschool-cv/)

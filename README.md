@@ -1,0 +1,1 @@
+[link](https://YAHOR-RUDZIANKOU.github.io/rsschool-cv/)

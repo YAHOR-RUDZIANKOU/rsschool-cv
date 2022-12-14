@@ -14,3 +14,13 @@ One of the greatest strengths is __perseverance__.
 My skills:
 + Play football
 + Git&GitHub
+
+Where can I be found?
+
+- [GitHub](https://github.com/YAHOR-RUDZIANKOU)
+
+- Mail: rudenkov.egor04@mail.ru
+
+- Telephone: +375445320...
+
+***
